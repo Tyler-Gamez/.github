@@ -1,4 +1,4 @@
-# Tyler's Gamez 🎮
+# Tyler Gamez 🎮
 
 Welcome to **Tyler's Gamez**, the official hub for our Roblox adventures!  
 We create fun, chaotic, and exciting games packed with surprises and challenges.  
@@ -38,7 +38,7 @@ Click your way to the top! Gain clicks, grow your total, and contribute to the g
 ---
 
 ## 🚀 Stay Updated
-Follow **Tyler's Gamez** to get news on new games, events, and secret surprises!  
+Follow **Tyler Gamez** to get news on new games, events, and secret surprises!  
 
 > "Always building something new, one game at a time." ✨
 
