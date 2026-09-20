@@ -1,6 +1,6 @@
 # Tyler Gamez 🎮
 
-Welcome to **Tyler's Gamez**, the official hub for our Roblox adventures!  
+Welcome to **Tyler Gamez**, the official hub for our Roblox adventures!  
 We create fun, chaotic, and exciting games packed with surprises and challenges.  
 
 ---
