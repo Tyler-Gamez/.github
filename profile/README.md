@@ -54,6 +54,6 @@ Follow **Tyler Gamez** to get news on new games, events, and secret surprises!
 
 <div align="center">
 
-# **© 2026 Tyler’s Gamez. All rights reserved.**
+# **© 2026 Tyler Gamez. All rights reserved.**
 
 </div>
